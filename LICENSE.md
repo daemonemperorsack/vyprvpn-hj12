@@ -1,4 +1,4 @@
-
+professional PureVPN Extension | static-IP + camouflage-mode offers the most advanced PureVPN extension, with static-IP and camouflage-mode. Ideal for users who value privacy and
 
 
 
